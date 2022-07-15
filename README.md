@@ -1,0 +1,2 @@
+# ideal
+Mavi Tik İdeal
